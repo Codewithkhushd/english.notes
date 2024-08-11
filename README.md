@@ -39,8 +39,7 @@ It is a process of exchanging information idea,though emotions,feeling through s
 
   ---
 
-  
-
+  **FORMAL CHANNELS OF COMMUNICATION**
   
 
 
